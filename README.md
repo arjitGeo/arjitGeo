@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @arjitGeo
-- 👀 I need help
+- 👀 Send help
 - 📫 [reach me ...](https://www.reddit.com/user/rgthehuman/)
 
 <!---
