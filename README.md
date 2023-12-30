@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @arjitGeo
-- 👀 Send help
-- 📫 [reach me ...](https://www.instagram.com/arjitgeo/)
+\0
